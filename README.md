@@ -1,0 +1,2 @@
+# antik
+belajar untuk maju
